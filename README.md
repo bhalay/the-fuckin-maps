@@ -1,2 +1,2 @@
 # the-fuckin-navigation
-It's the Fuckin Navigation what did you think?
+It's The Fuckin Navigation what did you think?
